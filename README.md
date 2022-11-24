@@ -1,1 +1,1 @@
-spasibo za lekciu
+
